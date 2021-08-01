@@ -1,2 +1,2 @@
 # Online-Appendix-BA
-Online-Appendix der Arbeit Grundsätze für ehrenamtliche Hilfeleistungsorganisationen im Cyberspace
+Online-Appendix der Bachelorarbeit Grundsätze für ehrenamtliche Hilfeleistungsorganisationen im Cyberspace
